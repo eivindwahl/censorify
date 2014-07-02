@@ -1,0 +1,1 @@
+Les meg, og bli klok
